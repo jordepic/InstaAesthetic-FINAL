@@ -1,4 +1,4 @@
-InstaAesthetic
+INSTAAESTHETIC:
 Enter a public Instagram account to recieve a comprehensive breakdown of its aesthetic!
 
 LINKS: n/a
