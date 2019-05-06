@@ -1,1 +1,7 @@
 ![Screenshot 1](https://github.com/jordepic/InstaAesthetic-FINAL/blob/master/Screenshots/Screen%20Shot%202019-05-05%20at%208.44.20%20PM.png?raw=true)
+![Screenshot 2](https://github.com/jordepic/InstaAesthetic-FINAL/blob/master/Screenshots/Screen%20Shot%202019-05-05%20at%208.44.42%20PM.png?raw=true)
+![Screenshot 3](https://github.com/jordepic/InstaAesthetic-FINAL/blob/master/Screenshots/Screen%20Shot%202019-05-05%20at%208.45.18%20PM.png?raw=true)
+![Screenshot 4](https://github.com/jordepic/InstaAesthetic-FINAL/blob/master/Screenshots/Screen%20Shot%202019-05-05%20at%208.45.35%20PM.png?raw=true)
+![Screenshot 5](https://github.com/jordepic/InstaAesthetic-FINAL/blob/master/Screenshots/Screen%20Shot%202019-05-05%20at%208.46.06%20PM.png?raw=true)
+![Screenshot 6](https://github.com/jordepic/InstaAesthetic-FINAL/blob/master/Screenshots/Screen%20Shot%202019-05-05%20at%208.46.52%20PM.png?raw=true)
+![Screenshot 7](https://github.com/jordepic/InstaAesthetic-FINAL/blob/master/Screenshots/Screen%20Shot%202019-05-05%20at%208.47.05%20PM.png?raw=true)
